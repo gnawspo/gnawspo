@@ -9,5 +9,5 @@ $${\color{#72859e}𓏺𓏫⠀⠀raden⠀⠀} {\color{#c698b1}or⠀⠀melodi}$$
 $${\color{#c698b1}~minor~⠀}⠀{\color{#72859e}they/dia }$$
 $${\color{#72859e}𓏺agender⠀⠀} {\color{#c698b1}sundanese \space ✚ \space eng/id}$$ 
 
-$${\color{#72859e}♡⃞ 𓏼  sonrisas \space yume}$$ 
+$${\color{#c698b1}\text{♡⃞ 𓏼}} {\color{#72859e}  sonrisas \space yume}$$ 
 
