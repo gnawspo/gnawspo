@@ -7,6 +7,7 @@
 
 $${\color{#72859e}𓏺𓏫⠀⠀raden⠀⠀} {\color{#c698b1}or⠀⠀melodi}$$ 
 $${\color{#c698b1}~minor~⠀}⠀{\color{#72859e}they/dia }$$
+$${\color{#72859e}𓏺agender⠀⠀} {\color{#c698b1}sundanese \space ✚ \space eng/id}$$ 
 
-$${\color{#72859e}♡⃞ 𓏼  sonrisas yume}$$ 
+$${\color{#72859e}♡⃞ 𓏼  sonrisas \space yume}$$ 
 
