@@ -5,9 +5,8 @@
 
 ![](https://github.com/gnawspo/gnawspo/blob/main/ezgif-50155cc7788d822b.gif)
 
-$${\color{#72859e}𓏺𓏫⠀⠀raden⠀⠀} {\color{#c698b1}or⠀⠀melodi}$$ 
-$${\color{#c698b1}~minor~⠀}⠀{\color{#72859e}they/dia }$$
-$${\color{#72859e}𓏺agender⠀⠀} {\color{#c698b1}sundanese \space ✚ \space eng/id}$$ 
-
+$${\color{#72859e}𓏺𓏫⠀⠀raden⠀𓎟𓎟}{\color{#c698b1}𓂃or⠀⠀melodi}$$ 
+$${\color{#c698b1}ꆬ⠀⠀minor⠀}⠀{\color{#72859e}𓏼ᕱ𓈒 \space ๑⠀⠀they/dia }$$
+$${\color{#72859e}𓏺agender \space ┈} {\color{#c698b1}asian \space ✚ \space terrible⠀ \space english}$$ 
 $${\color{#c698b1}\text{♡⃞ 𓏼}} {\color{#72859e}  sonrisas \space yume}$$ 
 
